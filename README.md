@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dylan-gibbard
-- 👀 I’m interested in being sigms
+- 👀 I’m interested in being sigma
 - 🌱 I’m currently learning how to be a sigma
 - 💞️ I’m looking to collaborate on being a sigma
 - 📫 How to reach me: Don't
